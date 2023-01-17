@@ -1,4 +1,4 @@
-👋 Hello! its me, ButterBoyJulian
+👋 Hello! its me, ButterDebugger
 
 I make stupid stuff for fun... beware.
 
